@@ -1,1 +1,1 @@
-# zadanie-lab4
+# zadanie-lab4-Małgorzata Suwińska
