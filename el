@@ -1,1 +1,0 @@
-Wczoraj był czwartek
